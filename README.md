@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hi! I'm Paula✨
+
 
 <!--
 **Awd12p3/Awd12p3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
