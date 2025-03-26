@@ -1,4 +1,4 @@
-# Hi! I’m Paula Briceno:
+# Hi! I’m Paula Briceno✨
 I’m a curious, people-driven problem solver with a background in **Computer Science and Systems Engineering**. I love learning, adapting, and tackling challenges in **software development, networks, and cybersecurity**.  
 
 Collaboration excites me, I thrive on exchanging ideas, solving problems together, and growing through shared knowledge. If you’re working on something exciting or just want to chat about tech, **let’s connect!** 🚀
